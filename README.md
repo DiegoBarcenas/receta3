@@ -5,5 +5,7 @@ Tengo una perra raza Golden Retriever y ella sabe dar la patita y dar la otra. A
 
 I <3 DOGS
 
-## Aqui hice un cambio
+Por cierto tengo otros 2 perros raza french poold y son igual de bello pero un poco mas burritos. Aun así I <3 dogs.
+
+## Aqui hice un cambio. Puro mitote 
 
